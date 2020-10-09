@@ -2,9 +2,7 @@
 
 <a target="_blank" href="https://www.amazon.com/gp/product/B07665L62W/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B07665L62W&linkCode=as2&tag=kenosabi0d-20&linkId=0366bb692a4eaccedc05b621e2cf38db">CamelBak Chute Mag BPA Free Water Bottle 32 oz, Charcoal</a><img src="//ir-na.amazon-adsystem.com/e/ir?t=kenosabi0d-20&l=am2&o=1&a=B07665L62W" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;" />
 
-<a target="_blank" href="https://www.amazon.com/gp/product/B07YRGTQFB/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B07YRGTQFB&linkCode=as2&tag=kenosabi0d-20&linkId=0fba10229a6d59b6eac82cd1650422dd">Neck Gaiter Scarf Japanese Rising Sun Flag Versatile Sports &amp; Casual Headwear, As A Bandana, Balaclava</a><img src="//ir-na.amazon-adsystem.com/e/ir?t=kenosabi0d-20&l=am2&o=1&a=B07YRGTQFB" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;" />
-
-<a target="_blank" href="https://www.amazon.com/gp/product/B086X458DQ/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B086X458DQ&linkCode=as2&tag=kenosabi0d-20&linkId=10638b8d679f3a55296eb562ac1c4e80">MOSDELU Japanese Style Tiger Tattoo Seamless Bandana Face Mask Balaclava Dust Windproof UV Protection Cover Neck Gaiter Scarf</a><img src="//ir-na.amazon-adsystem.com/e/ir?t=kenosabi0d-20&l=am2&o=1&a=B086X458DQ" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;" />
+<a target="_blank" href="https://www.amazon.com/gp/product/B086P9ZQ6M/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B086P9ZQ6M&linkCode=as2&tag=kenosabi0d-20&linkId=eeeea203bd79476492167b4867a530c6">Tiger Pattern Seamless Warmer Windproof UV Protection Neck Gaiter Scarf Bandana Face Mask for Outdoor Activities</a><img src="//ir-na.amazon-adsystem.com/e/ir?t=kenosabi0d-20&l=am2&o=1&a=B086P9ZQ6M" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;" />
 
 
 </index>
